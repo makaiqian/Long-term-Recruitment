@@ -1,8 +1,8 @@
-招聘岗位：前端
+**招聘岗位：前端**
 
-投递简历邮箱：kaiqian.mkq@alibaba-inc.com
+**投递简历邮箱：kaiqian.mkq@alibaba-inc.com**
 
-**招实习\P8\P7\P6**
+**招实习\P8\P7\P6，长期有效！**
 
 ## 职位列表
 
