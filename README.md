@@ -72,6 +72,6 @@
 ## 三、联系我们
 
 * 简历邮箱：kaiqian.mkq@alibaba-inc.com
-* 常见问题：详见ISSUE
+* 常见问题：详见[Issues](https://github.com/makaiqian/Long-term-Recruitment/issues)
 * 微信咨询：发邮箱，格式：姓名+岗位+标注来源“微信”
 
