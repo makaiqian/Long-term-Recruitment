@@ -69,6 +69,25 @@
 加入我们，你不仅可以依托淘系丰富的业务形态和海量的用户数据，与我们共同探索和衍生颠覆型互联网新技术，持续以技术驱动产品和商业创新，更可以与在用户增长、机器学习、视觉算法、音视频通信、数字媒体、端侧智能等领域的全球顶尖专业人才共同引领面向未来的商业创新和进步。
 我们期待对技术充满热情的你加入我们，与淘系技术部一起创造属于你的时代传奇！
 
+这是一支有逼格、有温度的团队！欢迎优秀的你们，加入我们！
+
+同事工位上的手办：
+![同事的手办](https://gw.alicdn.com/bao/uploaded/TB1sb8lf_Zmx1VjSZFGXXax2XXa-620-465.jpg)
+
+我们的日常活动：
+![团建](https://gw.alicdn.com/bao/uploaded/TB1WcRdNmzqK1RjSZPcXXbTepXa-620-465.jpg)
+
+我们的996乐队：
+![996](https://gw.alicdn.com/bao/uploaded/TB19uXMNirpK1RjSZFhXXXSdXXa-620-414.jpg)
+![996](https://gw.alicdn.com/bao/uploaded/TB1p3BHNmzqK1RjSZFLXXcn2XXa-620-464.jpg)
+![996](https://gw.alicdn.com/bao/uploaded/TB1.BxQNbrpK1RjSZTEXXcWAVXa-620-414.jpg)
+
+同事过生日，我们做的限量款（独一无二）礼物：
+![礼物](https://gw.alicdn.com/bao/uploaded/TB1u6BNNhTpK1RjSZFKXXa2wXXa-620-620.jpg)
+
+午休工位日常：
+![娱乐](https://gw.alicdn.com/bao/uploaded/TB1hs8RNa6qK1RjSZFmXXX0PFXa-620-349.jpg)
+
 ## 三、联系我们
 
 * 简历邮箱：kaiqian.mkq@alibaba-inc.com
